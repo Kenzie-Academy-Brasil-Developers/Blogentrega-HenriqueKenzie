@@ -1,3 +1,1 @@
-# Blog entrega
-Henrique Kenzie
 
